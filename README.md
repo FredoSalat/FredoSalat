@@ -9,7 +9,7 @@ I strive to develop robust and efficient systems with intuitive user interfaces 
 
 I am especially interested in everything web-based and the cutting-edge technologies around it, as well as in Artificial Intelligence and its application in vital industries.
 
-In my spare time, you can preferably find me on hiking trails, ski slopes, the football field, or the streets of Berlin :relaxed:
+In my spare time, you can preferably find me on hiking trails, ski slopes or the streets of Berlin :relaxed:
 
 
 
